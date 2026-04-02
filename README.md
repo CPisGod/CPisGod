@@ -1,1 +1,1 @@
-## I'm thinking how I have it easy... 🍯
+## I'm thinking how I could have it easy... 🍯
